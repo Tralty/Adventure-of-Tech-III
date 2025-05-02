@@ -17,5 +17,5 @@ Twitter/X: https://twitter.com/TheRealTralty
 Instagram: https://www.instagram.com/therealtralty/
 
 
-[<img src="https://www.bisecthosting.com/images/CF/ADVENTURE_OF_TECH_III/BH_ADVENTURE_OF_TECH_III_Promo.webp">](https://bisecthosting.com/Tralty)
-Looking for a way to show your support for me and the development of Adventure of Tech III? Check out BisectHosting and use code 'Tralty' for a 25% discount on your first month of a gaming server as a new customer. With their 24/7 support and quick response times, you'll receive exceptional assistance for all your gaming requirements.
+[<img src="https://www.bisecthosting.com/images/CF/ADVENTURE_OF_TECH_III/BH_ADVENTURE_OF_TECH_III_Promo.webp">](https://bisecthosting.com/gio)
+Looking for a way to show your support for me and the development of Adventure of Tech III? Check out BisectHosting and use code 'gio' for a 25% discount on your first month of a gaming server as a new customer. With their 24/7 support and quick response times, you'll receive exceptional assistance for all your gaming requirements.
